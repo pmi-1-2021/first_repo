@@ -1,3 +1,1 @@
-Hoshko Sofiia 
-Pmi-11
-Trying so hard
+Яцуляк Андрій Andrusha24
